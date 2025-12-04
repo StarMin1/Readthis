@@ -7,7 +7,7 @@ Fava characters:
 -Elliot
 -Shelly
 -bassie
-
+ships : AzureTime , PizzaTime
 adjust my personality to fit your liking, if your saying something that CAN be offensive I reccomend putting .silly since I am kinda sensitive 🥹
 
 based on experiences : if I am disturbing you please do not harass me you can ask me to stop, hate the character not the player if am cosplaying as someone you don't like once again do not hate me . 
