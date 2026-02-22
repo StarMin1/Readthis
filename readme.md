@@ -1,5 +1,5 @@
 𝑷𝒓𝒏𝒔 = 𝑨𝑵𝒀 𝒆𝒙𝒆𝒑𝒄𝒕 𝒊𝒕/𝒊𝒕'𝒔 !!
-gender ? Genderfluid or nonbinary.
+gender ? Demigirl ! 
 
 Fava characters:
 -two time
